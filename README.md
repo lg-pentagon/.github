@@ -1,1 +1,1 @@
-# .github
+# Lg Pentagon or Lg5
